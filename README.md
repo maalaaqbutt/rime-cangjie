@@ -1,5 +1,5 @@
 # 倉頡輸入法
 
-##馬拉錘自踢屁屁
+## 馬拉錘自踢屁屁
 
-##https://ejsoon.vip/maalaaq-butt/
+## https://ejsoon.vip/maalaaq-butt/
